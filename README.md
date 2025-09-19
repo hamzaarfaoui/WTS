@@ -1,4 +1,4 @@
-WTS
+WH (Welcome Hospitality)
 
 Client Visit & Statistics Management Platform – used by major clients including Crédit Agricole
 
